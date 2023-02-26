@@ -245,3 +245,16 @@ once again out here in the PNW.  Going to start as Rain but temps to drop to 25-
 
 
 *************************************************************************************************************
+02-23-2022  
+Status Update
+
+Jetbrains Spaces is not easy to use and Fleets Terminal does not have /bin installed by default
+
+On a happy note we just got 14" at Welch today.  So couple days after getting back from Washington and Chrystal Mnt
+we get some sweet snow here in MN.  Got a few good runs on Chicken and then road with the kiddos
+
+Back to looking at a new computer because I want to have someting that is my own with out using windows.
+
+
+
+*************************************************************************************************************
